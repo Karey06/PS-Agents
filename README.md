@@ -5,6 +5,7 @@ MEMBER NAMES
 3. AUDREY NYATICHI AYIEKO - 172827
 
 GROUPWORK EVIDENCE FOR BOTH THE EXERCISES ARE BELOW:
+
 16th October 2026
 <img width="1278" height="586" alt="WhatsApp Image 2026-10-16 at 19 50 04" src="https://github.com/user-attachments/assets/a042acfd-fd9e-4704-aa2a-f95f5aba33bb" />
 
